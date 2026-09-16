@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me www.linkedin.com/in/fabian-aguirre-b12541225, elecfa85@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: estoy cursando la carrera de relaciones laborales y a la vez el programa de talent acquisitions
+- ⚡ Fun fact: soy HR agile,HRBP juniors,people analyticsyIAmarketer
 
 <!---
 faby1985/faby1985 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
