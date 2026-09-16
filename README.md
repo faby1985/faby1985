@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @faby1985
 - 👀 I’m interested in todo lo que sea tecnologia y la vinculacion entre las personas y las empresas
-- 🌱 I’m currently learning a reclutar perfiles it avanzados
+- 🌱 I’m currently learning analista de datos
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me www.linkedin.com/in/fabian-aguirre-b12541225, elecfa85@gmail.com
 - 😄 Pronouns: ...
